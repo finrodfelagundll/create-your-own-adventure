@@ -15,3 +15,7 @@ Napokon shvatis da je sljez samosvjestan!
 Brzo zgrabiš upaljač, prestravljeno trčeći prema najbližim vratima.
 
 Vani pada kisa.
+
+I onda je svizac zamotao cokoladu.
+
+I krave su stvarno ljubicaste... ali stvarno.
